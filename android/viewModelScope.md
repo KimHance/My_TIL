@@ -1,0 +1,1 @@
+[블로그](https://kimansu.medium.com/28-%EC%95%88%EB%93%9C%EB%A1%9C%EC%9D%B4%EB%93%9C-%EA%B3%B5%EB%B6%80-viewmodelscope-d2f602fa9ee2)
